@@ -1,0 +1,1 @@
+Estou amando o curso! sempre quis aprender Git! a galera super cooperativa tbm
